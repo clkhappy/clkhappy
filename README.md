@@ -17,7 +17,7 @@ You can click the Preview link to take a look at your changes.
 - 💞️ I’m looking to collaborate on... Internet social networking, artificial intelligence. Internet Dating.
 - 📫 How to reach me... QQ, Douyin, Zhihu, Toutiao, telegram, discord
 - 😄 Pronouns: ... Male
-- ⚡ Fun fact: ... I surf the Internet intensively every day, mainly watching videos. telegraph. I like 2D games, music, and politics.
+- ⚡ Fun fact: ... I surf the Internet intensively every day, mainly watching videos. telegram. I like ACG games, music, and politics.
 
 I like Internet social interaction and community. Music socialization, interest socialization. I like watching videos. I like to surf the Internet. Learn.
 
